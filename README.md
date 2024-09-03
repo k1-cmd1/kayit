@@ -1,2 +1,0 @@
-# kayit
-kayit
